@@ -1,3 +1,0 @@
-Sydney Ruggless
-
-Pittsburg Pirates
